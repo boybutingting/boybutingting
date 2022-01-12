@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @boybutingting
-- 👀 I’m interested in ... magic with STEM
+- 👀 I’m interested in ... magic with STEAM
 - 🌱 I’m currently learning ... optics and thermodynamics
 - 💞️ I’m looking to collaborate on ... I want to meet friends
 - 📫 How to reach me ... +639272142743 , paolo@haraya.io
